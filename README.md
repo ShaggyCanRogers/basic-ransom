@@ -1,1 +1,3 @@
 # basic-ransom
+
+DONT TRY THESE CODES AT HOME
